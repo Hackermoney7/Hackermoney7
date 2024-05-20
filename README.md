@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Hackermoney7
 - 👀 I’m interested in hacker,progarmmer
 - 🌱 I’m currently learning hacker,programmer
-- 💞️ I’m looking to collaborate on progammer
+
 - 📫 How to reach me ???
 - 😄 Pronouns: ???
 - ⚡ Fun fact: ???
